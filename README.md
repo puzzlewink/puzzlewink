@@ -6,7 +6,7 @@
 \
 $\text{\color{#008080}𓎢𓎟 。𓎟𓎟}$\
 \
-<sub>[ata](https://buddybunnies.atabook.org)   ✧𓈒 ̣̣   [pronouns.cc](https://pronouns.cc/@goldfishduo)</sub>\
+<sub>[ata](https://buddybunnies.atabook.org)      [pronouns.cc](https://pronouns.cc/@goldfishduo)</sub>\
 ⠀
 ⠀
 
