@@ -1,7 +1,7 @@
 <div align="center">
   
   
-![](https://komarev.com/ghpvc/?username=your-github-username&color=b8860b&label=+++𓎟𓎟　+++friends+++)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=008080&label=+++𓎟𓎟　+++teammates+++)
 
 
 
@@ -14,3 +14,10 @@
       
 ac　　𓐇 lunnithxx
 
+${\textsf{\color{#b0e0e6}𓎟𓎟　 ✦　　𓎟𓎟}}$
+
+
+${\textsf{\color{#20b2aa}(✿◠⁠‿⁠◠⁠)⁠}}$ ${\textsf{\color{#008080}ponytowns}}$ [nufuli!](https://github.com/title-town) 
+
+
+${\textsf{\color{#48d1cc}thank}}$ ${\textsf{\color{#00ced1}you}}$ [pt-players!](https://github.com/pt-players) 
