@@ -5,14 +5,14 @@
 
 
 
-<img width="550" height="550" alt=" art not mine" src="https://file.garden/adIzTYUl0F9NXJnQ/Untitled396_20260614233950.png" />
+<img width="700" height="550" alt=" art not mine" src="https://file.garden/adIzTYUl0F9NXJnQ/Untitled402_20260618211803.png" />
 
         
 [ata](https://divydend.atabook.org)　　✦　　[rentry](https://rentry.co/evbo)　　✧　　[prns.cc](https://pronouns.cc/@div_y) 
 　　　　
 　　　　
       
-ac　　𓐇 lunnithxx
+ac　　𓐇 ‎frillcery
 
 ${\textsf{\color{#b0e0e6}𓎟𓎟　 ✦　　𓎟𓎟}}$
 
