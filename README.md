@@ -20,4 +20,4 @@ ${\textsf{\color{#800000}(✿◠⁠‿⁠◠⁠)⁠}}$ ${\textsf{\color{#a52a2a}
 
  ${\textsf{\color{#ff4500}♡}}$ [pt-players](https://github.com/pt-players) 
 
- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ut22uv5j7sjael3jyor329tii&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ut22uv5j7sjael3jyor329tii&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=9e3011&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
