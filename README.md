@@ -8,7 +8,7 @@
 <img width="750" height="550" alt=" art not mine" src="https://file.garden/adIzTYUl0F9NXJnQ/Untitled408_20260627052846.png" />
 
         
-${\textsf{\color{#b22222}꒰𓈒}}$　[a](https://divydend.atabook.org)ta　　˘˘　　[r](https://rentry.co/evbo)entry　　✚　　[p](https://pronouns.cc/@div_y)rns.cc ݃
+${\textsf{\color{#b22222}꒰𓈒}}$　[a](https://divydend.atabook.org)ta　　　　[r](https://rentry.co/snowfishduo)entry　　　　[p](https://pronouns.cc/@div_y)rns.cc ${\textsf{\color{#b22222} ݃}}$
 　　　　
 　　　　
 
